@@ -1,2 +1,2 @@
 # learning
-Never give upand keep learning
+Never give up and keep learning
